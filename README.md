@@ -1,6 +1,8 @@
 # writershub
 Информация для писателей и сценаристов
 
+http://twcguilds.com/
+
 http://www.imsdb.com/
 
 http://www.la-screenwriter.com/script-index/
