@@ -15,6 +15,8 @@ http://www.scifiscripts.com/
 
 https://blog.blcklst.com/
 
+https://johnaugust.com/library
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
