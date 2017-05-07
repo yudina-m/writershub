@@ -27,4 +27,5 @@ https://johnaugust.com/library
 - The Script Lab "Script Tips" https://www.youtube.com/playlist?list=PL2p-KMcP4eB_hcfz_NCMUednnihcSHIsD
 
 ## Инструменты
-FinalDraft
+- FinalDraft
+- Slugline http://slugline.co/
