@@ -1,6 +1,10 @@
 # writershub
 Информация для писателей и сценаристов
 
+## Полезные ссылки
+
+http://www.kinomania.ru/scripts/
+
 http://twcguilds.com/
 
 http://www.imsdb.com/
@@ -27,5 +31,7 @@ https://johnaugust.com/library
 - The Script Lab "Script Tips" https://www.youtube.com/playlist?list=PL2p-KMcP4eB_hcfz_NCMUednnihcSHIsD
 
 ## Инструменты
-- FinalDraft
+- FinalDraft https://www.finaldraft.com/
 - Slugline http://slugline.co/
+- Scrivener https://www.literatureandlatte.com/scrivener.php
+- Highland https://quoteunquoteapps.com/highland/
