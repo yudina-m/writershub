@@ -32,7 +32,6 @@ https://www.masterclass.com/classes/aaron-sorkin-teaches-screenwriting
 - Film Courage "Screenwriting" https://www.youtube.com/playlist?list=PLez8jOvskc-PzKXJkv3hBU6vkPCvEYcgx
 - The Script Lab "Script Tips" https://www.youtube.com/playlist?list=PL2p-KMcP4eB_hcfz_NCMUednnihcSHIsD
 - VideoForMe - видео уроки "Как написать сценарий" https://www.youtube.com/playlist?list=PLiTHErg0GTFAbMeSbdkI3CGwKQ44vXmLE
-- VideoForMe - видео уроки "Лучший учебник по сценарному мастерству" https://www.youtube.com/watch?v=NrXSwAROw0c
 
 ## Инструменты
 - FinalDraft https://www.finaldraft.com/
