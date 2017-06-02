@@ -23,6 +23,8 @@ https://johnaugust.com/library
 
 https://www.masterclass.com/classes/aaron-sorkin-teaches-screenwriting
 
+http://www.screenwriter.ru/
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
