@@ -34,6 +34,7 @@ http://www.screenwriter.ru/
 - Film Courage "Screenwriting" https://www.youtube.com/playlist?list=PLez8jOvskc-PzKXJkv3hBU6vkPCvEYcgx
 - The Script Lab "Script Tips" https://www.youtube.com/playlist?list=PL2p-KMcP4eB_hcfz_NCMUednnihcSHIsD
 - VideoForMe - видео уроки "Как написать сценарий" https://www.youtube.com/playlist?list=PLiTHErg0GTFAbMeSbdkI3CGwKQ44vXmLE
+- Writing 101: Basic Story Structure https://youtu.be/F7oi_V7JXCg
 
 ## Инструменты
 - FinalDraft https://www.finaldraft.com/
