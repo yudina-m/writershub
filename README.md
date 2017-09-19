@@ -42,3 +42,8 @@ http://www.screenwriter.ru/
 - Slugline http://slugline.co/
 - Scrivener https://www.literatureandlatte.com/scrivener.php
 - Highland https://quoteunquoteapps.com/highland/
+- Trelby http://www.trelby.org/
+- Adobe Story https://story.adobe.com/
+- Celtix https://www.celtx.com/
+- Movie Magic Screenwriter http://www.write-bros.com/movie-magic-screenwriter.html
+
