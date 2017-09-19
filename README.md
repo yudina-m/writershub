@@ -38,6 +38,7 @@ http://www.screenwriter.ru/
 
 ## Инструменты
 - FinalDraft https://www.finaldraft.com/
+- WriterDuet https://writerduet.com/
 - Slugline http://slugline.co/
 - Scrivener https://www.literatureandlatte.com/scrivener.php
 - Highland https://quoteunquoteapps.com/highland/
