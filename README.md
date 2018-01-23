@@ -27,6 +27,8 @@ http://www.screenwriter.ru/
 
 https://indiefilmhustle.com/aaron-sorkin-screenplays-download/
 
+http://telegra.ph/Oskarovskie-scenarii-2018-01-23 - Оскаровские сценарии 2018
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
