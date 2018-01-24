@@ -29,6 +29,8 @@ https://indiefilmhustle.com/aaron-sorkin-screenplays-download/
 
 http://telegra.ph/Oskarovskie-scenarii-2018-01-23 - Оскаровские сценарии 2018
 
+https://www.wgaeast.org/news-events-awards/101-greatest-screenplays/ - Лучшие сценарии по версии WGA
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
