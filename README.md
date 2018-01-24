@@ -31,6 +31,8 @@ http://telegra.ph/Oskarovskie-scenarii-2018-01-23 - Оскаровские сц�
 
 https://www.wgaeast.org/news-events-awards/101-greatest-screenplays/ - Лучшие сценарии по версии WGA
 
+https://www.wgaeast.org/onwriting/
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
