@@ -33,6 +33,10 @@ https://www.wgaeast.org/news-events-awards/101-greatest-screenplays/ - Лучш�
 
 https://www.wgaeast.org/onwriting/
 
+https://www.coverfly.com/ - Coverfly is the industry’s largest database of screenwriting competition entries
+
+https://www.reddit.com/r/Screenwriting/ - Reddit about Screenwriting
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
