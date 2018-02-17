@@ -37,6 +37,8 @@ https://www.coverfly.com/ - Coverfly is the industry’s largest database of scr
 
 https://www.reddit.com/r/Screenwriting/ - Reddit about Screenwriting
 
+https://t.me/pitchingi - канал о фестивалях, конкурсах, питчингах, грантах, мастер-классах и семинарах в кино
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
