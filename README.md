@@ -39,6 +39,10 @@ https://www.reddit.com/r/Screenwriting/ - Reddit about Screenwriting
 
 https://t.me/pitchingi - канал о фестивалях, конкурсах, питчингах, грантах, мастер-классах и семинарах в кино
 
+http://www.wga.org/ - Writers Guild of America West
+
+https://www.wgaeast.org/ - Writers Guild of America East
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
