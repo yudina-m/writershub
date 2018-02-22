@@ -43,6 +43,8 @@ http://www.wga.org/ - Writers Guild of America West
 
 https://www.wgaeast.org/ - Writers Guild of America East
 
+http://www.scriptreaderpro.com/best-screenplays-to-read/
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
