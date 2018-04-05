@@ -47,6 +47,9 @@ http://www.scriptreaderpro.com/best-screenplays-to-read/
 
 https://docs.google.com/spreadsheets/d/1fbcldxxyRvHjDaaY0EeQnQzvSP7Ub8QYVM2bIs-tKH8/edit#gid=1668340193 - Public Script Sources
 
+http://screenwritingmasterclass.com/webinars/
+
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
