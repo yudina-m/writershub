@@ -49,6 +49,8 @@ https://docs.google.com/spreadsheets/d/1fbcldxxyRvHjDaaY0EeQnQzvSP7Ub8QYVM2bIs-t
 
 http://screenwritingmasterclass.com/webinars/
 
+http://www.indiewire.com/2018/04/best-screenplays-scripts-american-1201952200/
+
 
 ## YouTube
 
