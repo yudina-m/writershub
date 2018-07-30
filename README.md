@@ -68,6 +68,7 @@ https://www.facebook.com/permalink.php?story_fbid=10213157769922005&id=132764743
 - VideoForMe - видео уроки "Как написать сценарий" https://www.youtube.com/playlist?list=PLiTHErg0GTFAbMeSbdkI3CGwKQ44vXmLE
 - Writing 101: Basic Story Structure https://youtu.be/F7oi_V7JXCg
 - Pixar Storytelling Rules https://www.youtube.com/watch?v=u8CpDHJuyF4&list=PLY6PCL9ylnRSaO608L0ocvzxusr_35XfC
+- Правила сторителлинга от Роберта Макки https://www.youtube.com/watch?v=b2TtEu6VBg0
 
 ## Инструменты
 - FinalDraft https://www.finaldraft.com/
