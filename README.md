@@ -27,6 +27,8 @@ https://www.masterclass.com/classes/aaron-sorkin-teaches-screenwriting
 
 http://www.screenwriter.ru/
 
+http://stardust-agency.ru/storymarket/ - площадка для связи сценаристов и продюссеров
+
 https://indiefilmhustle.com/aaron-sorkin-screenplays-download/
 
 http://telegra.ph/Oskarovskie-scenarii-2018-01-23 - Оскаровские сценарии 2018
