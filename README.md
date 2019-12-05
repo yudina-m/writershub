@@ -59,6 +59,8 @@ http://www.indiewire.com/2018/04/best-screenplays-scripts-american-1201952200/
 
 https://www.facebook.com/permalink.php?story_fbid=10213157769922005&id=1327647439
 
+https://gointothestory.blcklst.com/update-2019-award-season-screenplay-downloads-2-new-scripts-17-total-3c6170212de8 - 2019 Award Season Screenplay Downloads
+
 
 ## YouTube
 
