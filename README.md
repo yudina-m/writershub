@@ -61,6 +61,8 @@ https://www.facebook.com/permalink.php?story_fbid=10213157769922005&id=132764743
 
 https://gointothestory.blcklst.com/update-2019-award-season-screenplay-downloads-2-new-scripts-17-total-3c6170212de8 - 2019 Award Season Screenplay Downloads
 
+https://www.simplyscripts.com/oscar_winners.html - Academy Award winning screenplays
+
 
 ## YouTube
 
