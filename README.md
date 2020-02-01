@@ -78,6 +78,7 @@ https://www.simplyscripts.com/oscar_winners.html - Academy Award winning screenp
 - Pixar Storytelling Rules https://www.youtube.com/watch?v=u8CpDHJuyF4&list=PLY6PCL9ylnRSaO608L0ocvzxusr_35XfC
 - Правила сторителлинга от Роберта Макки https://www.youtube.com/watch?v=b2TtEu6VBg0
 - How Movies Work - Peter Russell https://www.youtube.com/watch?v=Vi6XG-JlIg0
+- Just Write https://www.youtube.com/channel/UCx0L2ZdYfiq-tsAXb8IXpQg
 
 ## Инструменты
 - FinalDraft https://www.finaldraft.com/
