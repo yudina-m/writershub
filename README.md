@@ -64,6 +64,10 @@ https://gointothestory.blcklst.com/update-2019-award-season-screenplay-downloads
 https://www.simplyscripts.com/oscar_winners.html - Academy Award winning screenplays
 
 
+## Authors
+- Vincenzo Natali - storyboards https://www.vincenzo-natali.com/tv-work
+
+
 ## YouTube
 
 - Max Landis https://www.youtube.com/user/Uptomyknees
