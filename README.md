@@ -63,6 +63,8 @@ https://gointothestory.blcklst.com/update-2019-award-season-screenplay-downloads
 
 https://www.simplyscripts.com/oscar_winners.html - Academy Award winning screenplays
 
+https://www.carolekirschner.com/blog/series-bible - Examples Of Successful TV Series Bibles
+
 
 ## Authors
 - Vincenzo Natali - storyboards https://www.vincenzo-natali.com/tv-work
