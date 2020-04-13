@@ -65,6 +65,8 @@ https://www.simplyscripts.com/oscar_winners.html - Academy Award winning screenp
 
 https://www.carolekirschner.com/blog/series-bible - Examples Of Successful TV Series Bibles
 
+https://www.scriptreaderpro.com/the-best-screenwriting-books/
+
 
 ## Authors
 - Vincenzo Natali - storyboards https://www.vincenzo-natali.com/tv-work
